@@ -1,0 +1,3 @@
+# u-pucuys-funniest-excuse-an-agent-gives-for-a-missed-ad6aef19-entry
+
+make.fun bounty entry.
